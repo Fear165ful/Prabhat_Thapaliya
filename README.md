@@ -1,2 +1,0 @@
-# Prabhat_Thapaliya
-beginner 
